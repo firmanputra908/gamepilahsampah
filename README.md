@@ -1,1 +1,1 @@
-# gamepilahsampah
+# game-pilah-sampah
